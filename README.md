@@ -1,1 +1,1 @@
-SyedTaqi.github.io
+Syedmuhammadtaqizaidi.github.io
